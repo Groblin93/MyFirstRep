@@ -1,1 +1,0 @@
-Chelic, Gosha!
